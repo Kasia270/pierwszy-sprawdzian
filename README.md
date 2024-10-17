@@ -31,7 +31,6 @@
 z każdym kolejnym rokiem zatrudniając więcej pracowników, zyskując zadowolonych klientów i tworząc <br>
 nowe, coraz kreatywniejsze przepisy na słodkie wypieki. <br>
 </p>
-</p>
 </div>
 </div>
 
